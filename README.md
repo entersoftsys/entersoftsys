@@ -5,4 +5,4 @@ EnterSoft Systems Ltd (EnterSoft) is a legally incorporated private company esta
 4. Website design and development,
 5. Website & email hosting,
 6. ICT security services,
-7.  Also provides sales, installation, repair, and maintenance of ICT good.
+7.  Also provides ICT Consultation.
